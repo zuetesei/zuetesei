@@ -11,7 +11,7 @@ I go on long walks daily, curate my Spotify playlists, and think about my dream 
 I also have my PADI license and looking for a dive buddy! 
 
 ### 💞️ Collaboration 
-I’m looking to collaborate on social projects, climate/ocean projects, travel. 
+I’m looking to collaborate on social projects, climate/ocean projects, travel, e-commerce.. 
 
 ### 📫 Where to Find Me  
 Email: zuleikatesei@gmail.com
